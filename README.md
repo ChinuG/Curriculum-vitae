@@ -1,1 +1,1 @@
-# https://chinmay191201.github.io/Curriculum-vitae/ Curriculum-vitae
+# https://chinug.github.io/Curriculum-vitae/ Curriculum-vitae 👈click here to quick review of project
